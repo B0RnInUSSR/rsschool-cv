@@ -1,1 +1,1 @@
-https://B0RnInUSSR.github.io/rsschool-cv/
+https://B0RnInUSSR.github.io/rsschool-cv/cv
