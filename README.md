@@ -1,1 +1,1 @@
-# rsschool-cv
+https://B0RnInUSSR.github.io/rsschool-cv/
